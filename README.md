@@ -1,2 +1,2 @@
-# fuck
-f**k
+# fuck god
+f**k god
